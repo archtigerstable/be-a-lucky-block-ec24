@@ -1,4 +1,4 @@
-
+be a lucky block best Script is the best be a lucky block Script, featuring speed and no clip. Safe and powerful for all your needs.
 
 
 
